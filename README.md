@@ -2,7 +2,7 @@
 
 # EBC Services
 
-[Effective Building & Consultancy] (https://www.effectiveconsultancy.com.au/) have been conducting residential and commercial building inspections Sydney wide since 2000.
+[Effective Building & Consultancy](https://www.effectiveconsultancy.com.au/) have been conducting residential and commercial building inspections Sydney wide since 2000.
 
 
 ## Our Top Services
