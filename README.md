@@ -2,7 +2,7 @@
 
 # EBC Services
 
-Some of the services that we use, in addition to other great SaaS platforms that may benefit your business.
+Effective Building & Consultancy have been conducting residential and commercial building inspections Sydney wide since 2000.
 
 
 ## Our Top Services
